@@ -17,13 +17,13 @@ This is powerful, because it means that I don't have to commit every important i
 ## Producers create value for themselves and their community.
 
 As far as content creation goes, writing online has the lowest barrier to entry. It’s incredibly easy to begin sharing your stories across any number of platforms. This is a double edged sword, because it means this medium also has a substantial amount of competition. But we’re not worried about monetizing our thoughts directly right now. If you’re _really_ good at writing, and you have many valuable insights to share, maybe this hobby could become profitable for you someday. 
-But just by producing something tangible, you will have started down the path toward a new way of living.
 
-In a world where the forces of consumerism are begging you to spend your precious time and attention for the benefit of large corporations, you will be taking a major step toward benefitting yourself and your community. You will be contributing something to the information economy, not just consuming its contents.
+
+But just by producing something tangible, you will have started down the path toward a new way of living. In a world where the forces of consumerism are begging you to spend your precious time and attention for the benefit of large corporations, you will be taking a major step toward benefitting yourself and your community. You will be contributing something to the information economy, not just consuming its contents.
 
 ## Organized thought precedes all value creation.
 
-Essays serve as a basic form of organized thought that can be transformed and repurposed in a multitude of ways. Want to repurpose your essays as blog posts? The content is already there, you’re just a few HTML files away from starting your own website. Want to write a book, but not sure what its topic should be? Over time, patterns will emerge across your essays. Many of them may relate to specific themes, and from these themes you can extract a clear message that you want to publish. Heck, some people even publish collections of essays as books and call it a day there. 
+Essays serve as a basic form of organized thought that can be transformed in a multitude of ways. Want to repurpose your essays as blog posts? The content is already there, you’re just a few HTML files away from starting your own website. Want to write a book, but not sure what its topic should be? Over time, patterns will emerge across your essays. Many of them may relate to specific themes, and from these themes you can extract a clear message that you want to publish. Heck, some people even publish collections of essays as books and call it a day there.
 
 
 What’s more? Essays can form the basis for video content too, serving as scripts to be fleshed out further and visualized on-screen. They may help you come up with an idea for a new business, or they may cause you to connect with a new friend. The doors of value creation can open to you, if you just take the time to organize your thoughts.
