@@ -6,7 +6,7 @@ What follows are a handful of reasons that inspired me to start writing essays o
 
 ## Valuable insights require intentional analysis.
 
-The flow of information in the modern world is so ubiquitous, that many (including myself) are striving to reduce the number of inputs to their minds, not increase it. We can choose to be willing subjects, getting tossed about by the winds of information without control over where they take us. Or, we can choose to fashion a mainsail, strap it to our mast, and grab hold of the wheel. Like a sailor harnessing the power of the wind to traverse the open ocean, writing essays will capture these gusts of information and transform them into coherent insights that propel us forward. Plus, because our minds are so much better at storing information through story, we are far more likely to internalize these learnings and apply them to our lives along the way.
+The flow of information in the modern world is so ubiquitous, that many (including myself) are striving to reduce the number of inputs to their minds, not increase it. We can choose to be willing subjects, getting tossed about by the winds of information without control over where they take us. Or, we can fashion a mainsail, strap it to our mast, and grab hold of the wheel. Like a sailor harnessing the power of the wind to traverse the open ocean, writing essays will capture these gusts of information and transform them into coherent insights that propel us forward. Plus, because our minds are so much better at storing information through story, we are far more likely to internalize these learnings and apply them to our lives along the way.
 
 ## Searchability expands your brain's capacity for knowledge.
 
