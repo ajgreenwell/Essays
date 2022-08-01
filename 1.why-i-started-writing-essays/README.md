@@ -1,4 +1,4 @@
-# 1. Why I decided to start writing essays, and why you should too.
+# Why I decided to start writing essays, and why you should too.
 
 Starting off a bit meta, I know. But this is a new endeavor for me, and as with anything, I always find it useful to begin by articulating my _why_. If I can pin that down, my motivation to stick with this habit is far more likely to persist. It may wax and wane over time, but with an understanding of how this new habit will positively impact my life, there's no telling how far it may take me.
 
