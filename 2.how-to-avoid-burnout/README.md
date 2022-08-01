@@ -18,7 +18,7 @@ If we look closely, we can see that a lack of motivation is to blame in both sce
 
 To put it another way, doing hard work _when you really don't want to_ elicits the strongest feelings of burnout. Whereas if I'm constantly motivated toward my goals, my risk of burning out before achieving them is dramatically reduced, and the enjoyment I'll experience along the way is sure to be amplified.
 
-So how do we maximize our time spent working toward goals that we feel motivated to achieve?
+So how do we maximize our time spent working toward goals that we feel motivated to accomplish?
 
 ## We must ride the waves of motivation.
 
