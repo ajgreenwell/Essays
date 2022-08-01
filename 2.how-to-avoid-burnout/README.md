@@ -1,4 +1,4 @@
-# How to avoid burnout.
+# How to avoid burnout and achieve your goals.
 
 There's a popular philosophy about achieving success that goes something like this:
 
