@@ -1,4 +1,4 @@
-# How to avoid burnout.
+# How to avoid burnout and accomplish your goals.
 
 There's a popular philosophy about achieving success that goes something like this:
 
@@ -18,7 +18,7 @@ If we look closely, we can see that a lack of motivation is to blame in both sce
 
 To put it another way, doing hard work _when you really don't want to_ elicits the strongest feelings of burnout. Whereas if I'm constantly motivated toward my goals, my risk of burning out before achieving them is dramatically reduced, and the enjoyment I'll experience along the way is sure to be amplified.
 
-So how do we maximize our time spent working toward goals that we feel motivated to achieve?
+So how do we maximize our time spent working toward goals that we feel motivated to accomplish?
 
 ## We must ride the waves of motivation.
 
@@ -52,9 +52,9 @@ Rather than forcing myself to continue going to the gym six days each week and r
 
 ### The work example.
 
-Currently I work as a mid-level software engineer at Wayfair. I love my job and my team, but some months I'm more motivated to grow as an engineer than others. With ambitious promotion goals always on the horizon, I can't afford to risk burning out. So instead of forcing myself to grind through the difficult weeks, I give myself a break. Sometimes I'll take a nap in the middle of the day if I need it. Maybe I'll pick up some easier projects that I know won't be so demanding. On rare occasions when burnout has felt like it was just a couple weeks away, I've taken unplanned PTO to hit the reset button.
+Currently I work as a mid-level software engineer at Wayfair. I love my job and my team, but some months I'm more motivated to grow as an engineer than others. With ambitious promotion goals always on the horizon, I can't afford to risk burning out. So instead of forcing myself to grind through the difficult weeks, I give myself a break. Sometimes I'll take a nap in the middle of the day if I need it. Maybe I'll pick up some easier projects that I know won't be so demanding. On rare occasions when burnout has felt just a couple weeks away, I've taken unplanned PTO to hit the reset button.
 
-But don't mistake these occasional periods of reduced output for laziness – they represent intentional, tactful choices made to preserve the sustainability of my progress and growth. Just this past Friday, I stayed in alone to bump some smooth jazz and crank out an inspired idea I had for a new feature on our platform. A lot of people might look at that choice and label me a "geek" or a "workaholic" for writing code on a Friday night. I look at it as a calculated decision to hone my craft while motivation ran high. I was just riding the waves. 
+But don't mistake these occasional periods of reduced output for laziness – they represent tactful choices made to preserve the sustainability of my progress and growth. Just this past Friday, I stayed in alone to bump some smooth jazz and crank out an inspired idea I had for a new feature on our platform. A lot of people might look at that choice and label me a "nerd" or a "workaholic" for writing code on a Friday night. I see at it as a calculated decision to hone my craft while motivation ran high. I was just riding the waves. 
 
 # That's it.
 
