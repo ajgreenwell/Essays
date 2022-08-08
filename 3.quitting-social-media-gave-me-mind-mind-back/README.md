@@ -40,7 +40,7 @@ Aside from getting all that valuable time back, I've noticed one other enormous 
 
 For years now I've experienced a hum of nervous mental energy lingering in the background of my mind throughout most of the day. I once attributed this hum to some kind of chronic anxiety. Maybe that's the technical term for it. Having experienced real anxiety attacks before, this hum felt similar, just less intense and more persistent. But it nagged at me, and it negatively impacted my frame of mind.
 
-To better understand this feeling, I spent much of the past year deeply exploring the practice of mindfulness meditation. Short of shipping myself off to the himalayas to study as a Tibetan monk, I've tried just about everything I could to face this feeling head on, understand its cause, and find relief from it. My efforts were only partially successful.
+To better understand this feeling, I spent much of the past year deeply exploring the practice of mindfulness meditation. Short of shipping myself off to the Himalayas to study as a Tibetan monk, I've tried just about everything I could to face this feeling head on, understand its cause, and find relief from it. My efforts were only partially successful.
 
 I've leaned on exercise as a coping mechanism to help cover up the hum with extra endorphins and other pleasant neurotransmitters. And that can work for a time. But I could never quite get that hum to go away for good. It was still there, always lingering in the background of every shared experience and every moment alone with my thoughts.
 
