@@ -6,7 +6,7 @@ You have to decide for yourself whether social media has a positive or negative 
 
 After the thousand-and-first morning of scrolling through YouTube upon waking up, I began to realize what little control I had over my usage of these platforms. Sometimes an hour would go by before the covers finally came off, and I'd start my day in a hazy fog of apathy – my mind already exhausted from processing the overwhelming stimulus it had been jolted awake with. 
 
-I have no idea how many mornings of mine have actually begun this way, but _many_ would be a laughable understatement. I believe millions of people around the world are experiencing a similar phenomenon as they eagerly swipe to the next TikTok, Twitter meme, or Instagram photo on their smartphones each morning.
+I have no idea how many mornings of mine have actually begun this way, but _many_ would be a laughable understatement. I believe millions of people around the world are experiencing a similar phenomenon as they eagerly swipe to the next TikTok video, Twitter meme, or Instagram photo on their smartphones each morning.
 
 In the past decade since these platforms began their takeover, we've gradually lost control over our attention. These companies have captured it for their own benefit, with the average person's social media usage increasing to [2 hours and 27 minutes each day](https://www.statista.com/statistics/433871/daily-social-media-usage-worldwide/). Let's assume for the sake of discussion that you fall roughly in line with this average. That means you'll spend about 10% of each day on social media, or 15% of your waking hours. I wonder: what does this average represent as a percentage of your _free_ time?
 
