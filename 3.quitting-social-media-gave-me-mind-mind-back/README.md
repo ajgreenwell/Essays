@@ -48,7 +48,7 @@ That is, until I removed these social media apps from my phone. The first time I
 
 > "...the lack of [digital] distraction in my life tones down that background hum of nervous mental energy that seems to increasingly pervade people's lives."
 
-Reading these words catalyzed my "Aha" moment and inspired me to dramatically reduce my social media usage for good. It has been one of the single most positively impactful changes to my lifestyle that I can remember. But just in case you won't take my word for it, and you won't take Cal's either, you may find [this recent study on the benefits of giving up social media for one week](https://www.liebertpub.com/doi/10.1089/cyber.2021.0324) to be particularly convincing.
+Reading these words catalyzed my aha moment and inspired me to dramatically reduce my social media usage for good. It has been one of the single most positively impactful changes to my lifestyle that I can remember. But just in case you won't take my word for it, and you won't take Cal's either, you may find [this recent study on the benefits of giving up social media for one week](https://www.liebertpub.com/doi/10.1089/cyber.2021.0324) to be particularly convincing.
 
 # That's it.
 
