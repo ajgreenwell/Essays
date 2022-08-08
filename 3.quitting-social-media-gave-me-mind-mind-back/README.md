@@ -2,13 +2,15 @@
 
 You have to decide for yourself whether social media has a positive or negative effect on your well-being. We all have varying priorities for our time and attention, so I can't possibly claim that it's bad for everyone. But is it good for _you_? Maybe it's time to find out.
 
-After the thousand-and-first morning of scrolling through YouTube upon waking up, I started to realize what little control I had over my usage of these platforms. Sometimes an hour would go by before the covers finally came off, and I'd start my day in a hazy fog of uninspired apathy – my mind already exhausted from processing the overwhelming stimulus it had been jolted awake with. 
+## Cozy in my pot of boiling water.
 
-I have no idea how many mornings of mine have actually begun this way, but _many_ would be a laughable understatement. I believe millions of people around the world are experiencing a similar phenomenon as they eagerly swipe to the next TikTok, Twitter meme, or Instagram photo on their handheld supercomputers.
+After the thousand-and-first morning of scrolling through YouTube upon waking up, I began to realize what little control I had over my usage of these platforms. Sometimes an hour would go by before the covers finally came off, and I'd start my day in a hazy fog of apathy – my mind already exhausted from processing the overwhelming stimulus it had been jolted awake with. 
+
+I have no idea how many mornings of mine have actually begun this way, but _many_ would be a laughable understatement. I believe millions of people around the world are experiencing a similar phenomenon as they eagerly swipe to the next TikTok, Twitter meme, or Instagram photo on their smartphones each morning.
 
 In the past decade since these platforms began their takeover, we've gradually lost control over our attention. These companies have captured it for their own benefit, with the average person's social media usage increasing to [more than 2 hours and 27 minutes each day](https://www.statista.com/statistics/433871/daily-social-media-usage-worldwide/). Let's assume for the sake of discussion that you fall roughly in line with this average. That means you'll spend about 10% of each day on social media, or 15% of your waking hours. I wonder: what does this average represent as a percentage of your _free_ time?
 
-Twenty years from now you will have spent about seven years working, seven more sleeping, and another two on social media. That only leaves four years for _all other activities_. Like [the fabled frog unknowingly boiling to death amidst a bath of gradually warming water](https://en.wikipedia.org/wiki/Boiling_frog), our society has remained seemingly unaware of these harmful changes to our environment. Even those of us who intuitively suspect that social media is a poor use of our time still struggle to change our behavior. What gives?
+Twenty years from now you will have spent about seven years working, seven more sleeping, and another two on social media. That only leaves four years for _all other activities_. Like [the fabled frog unknowingly boiling to death in a pot of gradually heated water](https://en.wikipedia.org/wiki/Boiling_frog), our society has remained seemingly unaware of these harmful changes to our environment. Even those of us who intuitively suspect that social media is a poor use of our time still struggle to change our behavior. What gives?
 
 ## Your brain chemistry has been exploited for profit.
 
@@ -32,7 +34,7 @@ Instead of discovering how much value these platforms added to my life, I've now
 
 It's not that all the content I consumed on these platforms was meaningless – for years I've touted YouTube as one of the best resources for learning new skills. And I stand by that statement. But having immediate access to these apps on my phone had become a liability. I couldn't trust myself to discern between time spent productively learning and time spent aimlessly scrolling. The recommendation algorithms had won, and I had formed unconscious habits of giving them my attention for far too long.
 
-## Bidding farewell to the background hum of nervous mental energy.
+## Silencing the background hum of nervous mental energy.
 
 Aside from getting all that valuable time back, I've noticed one other enormous benefit of my reduced social media usage.
 
@@ -40,7 +42,7 @@ For years now I've experienced a hum of nervous mental energy lingering in the b
 
 To better understand this feeling, I spent much of the past year deeply exploring the practice of mindfulness meditation. Short of shipping myself off to the himalayas to study as a Tibetan monk, I've tried just about everything I could to face this feeling head on, understand its cause, and find relief from it. My efforts were only partially successful.
 
-I've leaned on exercise as a coping mechanism to help cover up the hum with extra endorphins and other pleasant neurotransmitters. That can work for a time. But I could never quite get that hum to go away for good. It was still there, always lingering in the background of every shared experience and every moment alone with my thoughts.
+I've leaned on exercise as a coping mechanism to help cover up the hum with extra endorphins and other pleasant neurotransmitters. And that can work for a time. But I could never quite get that hum to go away for good. It was still there, always lingering in the background of every shared experience and every moment alone with my thoughts.
 
 That is, until I removed these social media apps from my phone. The first time I ever heard someone else put a finger on this feeling was while reading one of Cal Newport's bestsellers, _Deep Work_:
 
